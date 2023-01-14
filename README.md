@@ -8,6 +8,6 @@ hhaaggcd
 
 adresa je
 
-https://Project-1.github.io
+https://neven17.github.io/Project-1.github.io/
 
 heheheheh
