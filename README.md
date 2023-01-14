@@ -2,7 +2,7 @@
 
 Ovdje ce biti svasta nesto ahahahah
 
-adresa je ta i https://vaslovikneven@gmail.com
+adresa je ta i https://Project-1.github.io
 
 hhaaggcd
 
