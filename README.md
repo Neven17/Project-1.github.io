@@ -2,8 +2,12 @@
 
 Ovdje ce biti svasta nesto ahahahah
 
-adresa je ta i https://github.com/Neven17/Project-1.github.io.git
+adresa je ta i
 
 hhaaggcd
+
+adresa je
+
+https://Project-1.github.io
 
 heheheheh
